@@ -1,0 +1,2 @@
+# SIGMAWARE.GG
+sware
